@@ -1,4 +1,4 @@
-# 
+# CrossOver for macOS advanced Tool: file-sharing & automated-backups offers the most advanced CrossOver for macOS tool, with file-sharing and automated-backups. Ideal for macOS
 
 
 
